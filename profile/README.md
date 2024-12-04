@@ -1,12 +1,12 @@
 # Sprunki Gyat - Play Incredibox Sprunki Mod Game Online
 
-Step into Sprunki Gyat—a groundbreaking music creation platform that sparks your imagination. With its captivating characters and rich sonic textures, this game offers an elegant interface that serves as the ultimate canvas for musical exploration and artistry.
+Step into Sprunki Gyat—a groundbreaking music creation platform that sparks your imagination. With its captivating characters and rich sonic textures, this game offers an elegant interface that serves as the ultimate canvas for musical exploration and artistry.  
 
 ## Play Sprunki Gyat Now
 Are you ready to embark on a magical musical adventure? Let’s get started!
 
 ### [Sprunki Gyat](https://sprunkisinner.org/sprunki-gyat)
-### [Sprunki Corruptbox 3 Infected](https://sprunkisinner.org/sprunki-corruptbox-3-infected-war)
+### [Sprunki Corruptbox 3 Infected War](https://sprunkisinner.org/sprunki-corruptbox-3-infected-war)
 ### [Corruptbox 2 But Sprunki](https://sprunkisinner.org/corruptbox-2-but-sprunki)
 
 ## Introduction to Sprunki Gyat
