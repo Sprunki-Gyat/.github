@@ -6,8 +6,9 @@ Step into Sprunki Gyat—a groundbreaking music creation platform that sparks yo
 Are you ready to embark on a magical musical adventure? Let’s get started!
 
 ### [Sprunki Gyat](https://sprunkisinner.org/sprunki-gyat)
-### [Sprunki Corruptbox 3 Infected War](https://sprunkisinner.org/sprunki-corruptbox-3-infected-war)
-### [Corruptbox 2 But Sprunki](https://sprunkisinner.org/corruptbox-2-but-sprunki)
+### [Corruptbox 3 x Sprunki](https://corruptbox.com/corruptbox-3-x-sprunki)
+### [Corruptbox 2 But Sprunki](https://corruptbox.com/corruptbox-2-but-sprunki)
+### [Corruptbox But Sprunki](https://corruptbox.com/corruptbox-but-sprunki)
 
 ## Introduction to Sprunki Gyat
 
